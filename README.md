@@ -145,3 +145,12 @@ For a complete guide on finding a trusted abortion clinic in Illinois, review th
 **[Access the PDF guide](https://www.dropbox.com/scl/fi/s2x28dthadcnqrk7xjbyx/Find-a-Trusted-Abortion-Clinic-Near-You-in-Illinois.pdf?rlkey=ihnfua1qg1o5ejg5n1m0qdxp3&st=bz3u4v2c&dl=0)**
 
 ---
+
+## **Explore Additional Resource Page**
+
+You can explore this dedicated resource page for additional information and supporting details:  
+ **[Visit the resource page](https://sites.google.com/view/serenity-choice-health-clinic/home)**
+
+---
+
+---
